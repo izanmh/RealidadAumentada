@@ -1,2 +1,2 @@
 # RealidadAumentada
-trabajo calla puto
+trabajo calla marica
